@@ -1,37 +1,26 @@
-## Welcome to GitHub Pages
 
-You can use the [editor on GitHub](https://github.com/joe1280/baiduvideo/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
 
-### Markdown
+https://url.cn/5dEcWMU      v7ih(提*取*码)    只有芸知道
 
-Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
-```markdown
-Syntax highlighted code block
 
-# Header 1
-## Header 2
-### Header 3
+https://url.cn/5n6YjCQ      k5h4(提*取*码)     误杀
 
-- Bulleted
-- List
 
-1. Numbered
-2. List
 
-**Bold** and _Italic_ and `Code` text
+https://url.cn/54NssEw      jfp8(提*取*码)  美丽人性
 
-[Link](url) and ![Image](src)
-```
 
-For more details see [GitHub Flavored Markdown](https://guides.github.com/features/mastering-markdown/).
 
-### Jekyll Themes
+ 
+https://url.cn/5bGIXyg    bbun(提*取*码)     叶问4
 
-Your Pages site will use the layout and styles from the Jekyll theme you have selected in your [repository settings](https://github.com/joe1280/baiduvideo/settings). The name of this theme is saved in the Jekyll `_config.yml` configuration file.
 
-### Support or Contact
 
-Having trouble with Pages? Check out our [documentation](https://help.github.com/categories/github-pages-basics/) or [contact support](https://github.com/contact) and we’ll help you sort it out.
+https://url.cn/5twq6Z7   f6av(提*取*码) 集合
+
+https://url.cn/58vLmlo  5ss5(提*取*码) 沉睡魔咒2
+
+
+https://url.cn/5BQVVAk   bpwa(提*取*码) 被光
